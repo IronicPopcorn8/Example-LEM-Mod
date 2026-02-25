@@ -1,2 +1,2 @@
-Minecraft World from Super Smash Bros Ultimate's Steve DLC
+Minecraft World from Super Smash Bros Ultimate's
 
